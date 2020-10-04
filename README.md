@@ -1,1 +1,1 @@
-# PixelFed Project Website
+# PixelFed Project Website - An Astonishing Project
